@@ -23,4 +23,4 @@ Done!
 
 if you still need help. don't shy to ask, I'll happy to help you.
 
-Email: connect@vishalmathur.in & MathurVishal@outlook.com
+Email: vipulmilindvadhe@gmail.com
